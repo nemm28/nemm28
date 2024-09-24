@@ -14,3 +14,15 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Just found out about GitHub and I'm intrigued! 
+
+Love to learn new things and connect with other people and this seems like a goood apportunity to do that.
+
+Nursing student :raising_hand_man: 
+
+Currently learning to use MySQL just for fun.
+
+Looking to expand my knowledge, learn new skills, and meet new people with similar interests 😺
+
+DM me on insta: nicolasemilio2806
+
